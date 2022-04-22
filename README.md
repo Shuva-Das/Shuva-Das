@@ -1,4 +1,4 @@
-(https://www.linkedin.com/in/shuva-das-788969211/overlay/background-image/)
+(https://www.facebook.com/photo/?fbid=3249188588730246&set=a.2188568504792265)
 
 ### Hi there 👋, Shuva Das
 #### I am now working on Android Development
