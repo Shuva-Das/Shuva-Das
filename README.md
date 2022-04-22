@@ -1,4 +1,4 @@
-(https://www.facebook.com/photo/?fbid=3249188588730246&set=a.2188568504792265)
+Facebook: (https://www.facebook.com/ShuvaDas.CSE)
 
 ### Hi there 👋, Shuva Das
 #### I am now working on Android Development
